@@ -1,3 +1,3 @@
 Запись лекции доступна по ссылке
 
-https://drive.google.com/drive/folders/1z7zWqUU5Fu5IAkpNpf1vlpDJ3Eqb_mBf?usp=sharing
+https://www.youtube.com/watch?v=fOknLEwhzz0&list=PLlN9z5WD58jr4_sbUx1prOaVHt3UIUFnZ&index=1&t=1970s
